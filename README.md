@@ -3,7 +3,6 @@ A passionate FULLSTACK DEVELOPER
 Email Me 👉 ✉️ rambiharipatel175@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
 🌱 I’m currently learning: Node JS
-🤔 I’m looking for help with: Your project here
 📫 How to reach me: rambiharipatel175@gmail.com
 ⚡ Fun fact: I Love Coding and Tech Love Me
 
