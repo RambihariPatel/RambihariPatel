@@ -7,8 +7,6 @@ Email Me 👉 ✉️ rambiharipatel175@gmail.com For Collaboration/Project or An
 📫 How to reach me: rambiharipatel175@gmail.com
 ⚡ Fun fact: I Love Coding and Tech Love Me
 
-Hiiiiiiii
-
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/mr__ram___bihari_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Rambihari Patel) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/Rambihari Patel) 
 
